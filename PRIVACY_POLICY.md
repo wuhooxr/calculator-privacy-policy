@@ -75,9 +75,9 @@ Since we do not collect any personal data, there is no personal data to access, 
 
 If you have any questions or concerns about this Privacy Policy or the Calculator App, please contact us at:
 
-**Email:** [your-email@example.com]
+**Email:** contact AT wuhooxr DOT com
 
-**Developer:** [Your Name or Company Name]
+**Developer:** WuhooXR
 
 ## Compliance
 
